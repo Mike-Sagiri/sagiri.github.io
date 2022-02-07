@@ -8,7 +8,7 @@ Whenever you join in our project, This Pages will run [R18 Checks](http://dfyz.s
 
 Our website was established for all the people who is thirsty for some stimuli to satisfy their need in sex and orgasm. Sex is not a dangerous thing, but it is always said so.
 
-**So before applying for the position in our team, we have to clarify some statement provided that some extreme people threaten our usual work.**
+**So before allowing you to apply for the position in our team, we have to clarify some statement provided that some extreme people threaten our usual work.**
 
 For more details see [This Website](https://www.pku.edu.cn/).
 
